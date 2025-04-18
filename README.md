@@ -1,5 +1,3 @@
-Sure! Here's a rewritten and more unique English version of the original content:
-
 ---
 
 # 🎯 **CsGoEmpire Predictor – Your Smart Betting Assistant**
